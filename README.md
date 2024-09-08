@@ -8,7 +8,7 @@ My 15-year tenure in the finance industry in Hong Kong includes roles as an equi
 
 I hold a BEng from Xi'an Jiaotong University and an MPhil in Operations Research from the University of Hong Kong. I also earned an executive MBA from Cambridge Judge Business School.
 
-Beyond my professional life, I have led a bicycle fundraising campaign from London to Cambridge for Clare Hall Cambridge and organized a trip to China's Greater Bay Area for a delegation of 23 members from Cambridge Judge Business School. Furthermore, I have supported Cambridge University Library to receive a collection of documents about a social activist's life from 1970's to 1990's in China. and I also served on the selection committee for the zero-carbon innovation competition TERA-Award 2023.
+Beyond my professional life, I have led a bicycle fundraising campaign from London to Cambridge and organized a trip to China's Greater Bay Area for a delegation of 23 members from Cambridge Judge Business School. Furthermore, I have supported Cambridge University Library to receive a collection of documents about a social activist's life from 1970's to 1990's in China, and I also served on the selection committee for the zero-carbon innovation competition TERA-Award 2023.
 
 This site is maintained by Steven Lu.
 

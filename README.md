@@ -2,13 +2,13 @@
 
 Bio
 
-I am now founder of three ventures: DL Capital for private equity investment, HL Oriental for public equity investment and SDA Cambridge for affordable intelligent solutions distribution.
+I am the founder of three ventures: (1) DL Capital, specializing in private equity investment; (2) HL Oriental, focusing on public equity investment; and (3) SDA Cambridge, which distributes affordable intelligent solutions.
 
-I have worked in the finance industry for about 15 years in Hong Kong, as an equity analyst for the first 5 years and then an investment manager for another 10 years. I have completed 23 private equity investments and also managed a portfolio of stocks with AUM of roughly USD 100m. Successfully exited deals include Dongyue (189.HK), Koolearn Tech, Miniso and Golden Harvest etc, with an accumulated distribution of over USD 100m paid to investors. I have also ever sited on the board of some investee companies such as Gogox and FJDynamics. 
+My 15-year tenure in the finance industry in Hong Kong includes roles as an equity analyst for the first five years, followed by a decade as an investment manager. I have executed 23 private equity investments and managed a stock portfolio with an AUM of approximately USD 100m. My successful exits include Dongyue (189.HK), Koolearn Tech, Miniso, and Golden Harvest, among others, resulting in over USD 100m distributed to investors. Additionally, I have served on the boards of investee companies such as Gogox and FJDynamics.
 
-I graduated from Xi'an Jiaotong University with a BEng and University of Hong Kong with a MPhil in Operations Research. I also received an executive MBA from Cambridge Judge Business School.
+I hold a BEng from Xi'an Jiaotong University and an MPhil in Operations Research from the University of Hong Kong. I also earned an executive MBA from Cambridge Judge Business School.
 
-Outside of career, I have ever led a bicycle fundraising campaign from London to Cambridge for Clare Hall, Cambridge (https://www.clarehall.cam.ac.uk/news/emba-student-steven-lu-raises-over-10000-for-diversity-and-inclusion) and organied a trip to the Greater Bay Area of China for a delegation of EMBA students and staffs from Cambridge Judge Business School (https://www.jbs.cam.ac.uk/2024/cambridge-embas-explore-innovation-in-chinas-greater-bay-area). In addition, I have ever sitted as a selection committee for the zero-carbon innovation competition TERA-Award 2023 (https://tera-award.life).
+Beyond my professional life, I have led a bicycle fundraising campaign from London to Cambridge for Clare Hall, Cambridge(https://www.clarehall.cam.ac.uk/news/emba-student-steven-lu-raises-over-10000-for-diversity-and-inclusion/), and organized a trip to China's Greater Bay Area for a group of EMBA students and staff from Cambridge Judge Business School (https://www.jbs.cam.ac.uk/2024/cambridge-embas-explore-innovation-in-chinas-greater-bay-area/). Furthermore, I have served on the selection committee for the zero-carbon innovation competition TERA-Award 2023.
 
 This site is maintained by Steven Lu.
 

@@ -1,3 +1,6 @@
+![Uploading CDDFF7C0-E214-4B36-B3B7-F78FA6DD338A_1_105_c.jpeg…]()
+
+
 Bio
 
 I am now founder of three ventures: DL Capital for private equity investment, HL Oriental for public equity investment and SDA Cambridge for affordable intelligent solutions distribution.
